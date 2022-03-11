@@ -1,3 +1,0 @@
-- How do you protect your team from unrealistic deadlines?
-- How do you protect your team from burnout?
-- Describe your most recent 1:1.
